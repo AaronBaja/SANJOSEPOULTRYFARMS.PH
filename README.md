@@ -43,10 +43,10 @@ There's so many platforms we use to sell the eggs like online platforms, and als
 
 
 
-the total number of eggs produced each year,
-between 2009 and 2012 Moreover, within the next two (2) to five (5) years,
-In San Jose, Batangas, there will be a gradual increase in chicken egg output. The
-The data supplied here will give San Jose's egg producers a more positive view in the future.
+
+
+
+
 
 
 
