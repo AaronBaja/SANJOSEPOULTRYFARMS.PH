@@ -32,11 +32,12 @@ financial assistance focused on the improvement and expansion of agri-business i
 Province.
 
 # Statement of the Problem
-According to conversations with egg producers in San Jose, the more tough problems they face, the better.
-Constantly have to deal with can be ranked in terms of the egg's degree of importance.
-(1) high inflation rate; (2) low farm-gate pricing; and (3) high feed prices are all factors that affect the production company.
+We all know that we have the egg producers in San Jose Batangas, but we've known that there's a challenge or problems we encountered in selling eggs.
 
-expenditures, as well as a maize supply deficit. 60–70% of chicken layer feeds are consumed by chickens.
+There's so many platforms we use to sell the eggs like online platforms, and also a fliers. We've encountered so many problems in the chicken like flue or viruses that the chicken facing. So that we have to protect the chicken so that their eggs is good and not rotten.
+
+
+
 
 of the manufacturing cost As a result, if the prices of important feed items like soya and corn rise,
 
