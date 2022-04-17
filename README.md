@@ -39,18 +39,18 @@ There's so many platforms we use to sell the eggs like online platforms, and als
 
 
 
-of the manufacturing cost As a result, if the prices of important feed items like soya and corn rise,
 
-If the global price of chicken eggs rises, the local price per unit of chicken egg rises as well.
+
+
 
 the total number of eggs produced each year,
 between 2009 and 2012 Moreover, within the next two (2) to five (5) years,
 In San Jose, Batangas, there will be a gradual increase in chicken egg output. The
 The data supplied here will give San Jose's egg producers a more positive view in the future.
 
-Given that the majority of them are commercialized poultry-raisers, the industry has grown.
 
-In the late 1990s, they were able to expand their enterprises.
+
+
 # Objectives of the Study
 This study performed a SANJOSEPOULTRYFARMS.PH - A virtual platform for Egg Distribution and Sales in San Jose, Batangas. The goals of this study are to present the performance of the egg production business in San Jose over the last three years (2018 to 2020) in terms of chicken layer population, production, and annual gross sales, to determine the commercial potentiality of this business based on this three-year period, and to identify the challenges that this industry faces.
 
