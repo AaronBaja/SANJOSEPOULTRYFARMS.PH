@@ -36,6 +36,8 @@ We all know that we have the egg producers in San Jose Batangas, but we've known
 
 There's so many platforms we use to sell the eggs like online platforms, and also a fliers. We've encountered so many problems in the chicken like flue or viruses that the chicken facing. So that we have to protect the chicken so that their eggs is good and not rotten.
 
+As for the average farmgate price of chicken eggs in commercial farms from April to June, PSA observed it to be around P5.50 per piece. This was -1.8 percent lower than the average farmgate price of P5.60 per piece in the same period of 2020.
+
 
 
 
